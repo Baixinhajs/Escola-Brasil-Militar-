@@ -1,2 +1,2 @@
 # Escola-Brasil-Militar-
-Sobre as escola no Brasil 
+Sobre as escolas no Brasil 
